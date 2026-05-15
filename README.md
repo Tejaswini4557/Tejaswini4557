@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tejaswini
-- 👀 I’m interested in Major Projects
+- 👀 I’m interested in Developer and Designer Roles
 - 🌱 I’m currently learning Bachelors in Electronics and Communication Engineering
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Skill Development
 - 📫 Reach me on gmail- saitejaswini0405@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: ...
